@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on indie games
 - 📫 How to reach me ...
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I am currently a librarian!
 
 <!---
 artemisgames99/artemisgames99 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
